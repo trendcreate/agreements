@@ -1,0 +1,1 @@
+# TRENDcreate規約
